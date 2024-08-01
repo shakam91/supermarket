@@ -7,4 +7,4 @@ SuperMarket V1
 
 Preview : https://youtu.be/5NYhfwuzDMA
 
-Discord : https://discord.gg/P3pzwkfXct
+Discord : https://discord.gg/3fk65Bsru6
